@@ -1,2 +1,2 @@
 # AplikasiPenghitungUmur
-Latihan 2-Nur Saiva Putri(2310010179)
+Latihan 2 - Nor Aqifah (2310010196)
